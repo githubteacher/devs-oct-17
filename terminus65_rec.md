@@ -11,3 +11,4 @@
 - Disneyland
 
 - Dodger Game
+- Visit Rose Bowl
