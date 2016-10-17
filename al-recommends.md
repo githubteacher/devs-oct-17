@@ -3,4 +3,6 @@
 ## Recommendations
 
 ### Places to eat
+Whatever nonsense
+
 ### Things to do
