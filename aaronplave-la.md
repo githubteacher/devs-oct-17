@@ -2,7 +2,11 @@
 
 ### Places to Eat
 - Auntie Em's
+- Oinkster
 - Urth Cafê
+- Taco Spot
 
 ### Things to Do
-- Stuff
+- Hiking in Angeles National Forest (try Switzer Falls)
+- The Last Bookstore (downtown)
+- LACMA
