@@ -1,5 +1,7 @@
 ## Recommendations for test
 
-## Things to do
+## Things to eat
+- Pizza
+- Taco
 
-## Things not to do
+## Things to do
