@@ -2,4 +2,7 @@
 
 ### Places to Eat
 
+- Aviator's is really popular
+- NCinians are proud of their BBQ, but it isn't real BBQ. Try "The Pit" in Raleigh.
+
 ### Things to Do
